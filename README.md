@@ -4,7 +4,6 @@
 - 🎬 My hobbies are watching movies and series.
 - 📚 I love reading sci-fi and inspirational books.
 - 🎵 Ed Sheeran and Taylor Swift are my favorite singers.
--     
 
 
 <!---
