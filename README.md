@@ -21,8 +21,8 @@
 
 
 ### Where to find me
-- [Facebook: https://www.facebook.com/Iran.Flores27]
-- [Instagramh: https://www.instagram.com/iran_maria_27/]
+- [Facebook] (https://www.facebook.com/Iran.Flores27)
+- [Instagram] (https://www.instagram.com/iran_maria_27/)
 
 
 
