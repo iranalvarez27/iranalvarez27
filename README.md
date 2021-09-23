@@ -8,8 +8,6 @@
 
 
 
-
-
 ### A little more about me
 - I am 21 years old :)
 - I am very passionate about learning new languages.
@@ -19,8 +17,7 @@
 
 
 
-
-### Where to find me
+### 🌐 Where to find me
 - [Facebook](https://www.facebook.com/Iran.Flores27)
 - [Instagram](https://www.instagram.com/iran_maria_27/)
 
