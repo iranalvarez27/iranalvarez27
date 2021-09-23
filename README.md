@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iranalvarez27
+- 👋 Hi, I’m Iran Alvarez.
 - 👀 I’m interested in improving my tech skills.
 - 💻 I’m currently learning programming.
 
