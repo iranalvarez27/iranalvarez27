@@ -1,6 +1,6 @@
 ## Hi y'all 👋
 
- I'm a university student who is currently learning programming and getting used to this **new world**. :) I love going out and stay near the beauty of nature🌺. Reading books has also become one of my hobbies especially when I am stressed. A couple of books I've been reading are *A very large expanse of sea* and *An emotion of great delight* 📚
+ I'm a university student who is currently learning programming and getting used to this **new world**. :) I love going out and staying near the beauty of nature🌺. Reading books has also become one of my hobbies especially when I am stressed. A couple of books I've been reading are *A very large expanse of sea* and *An emotion of great delight* 📚
 
 
 
