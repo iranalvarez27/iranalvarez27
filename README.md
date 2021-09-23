@@ -5,9 +5,19 @@
 - 🎵 Ed Sheeran and Taylor Swift are my favorite singers.
 
 
+
+
+
+
+
 ### A little more about me
 - I am 21 years old :)
-- I am very passionate on learning new languages.
+- I am very passionate about learning new languages.
+- My pets are Blacky and Romana.
+
+
+
+
 
 
 ### Where to find me
