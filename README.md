@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iranalvarez27
 - 👀 I’m interested in improving my tech skills.
-- 🌱 I’m currently learning programming.
+- 💻 I’m currently learning programming.
 
 
 <!---
