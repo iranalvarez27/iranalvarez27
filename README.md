@@ -15,8 +15,8 @@
 
 ### Favorite songs?
 
-[I will survive](https://open.spotify.com/track/7rIovIsXE6kMn629b7kDig?si=MR9nh7fsTcGjcS0bQg5DrQ&utm_source=copy-link&dl_branch=1)
-[Just the way you are](https://open.spotify.com/track/7BqBn9nzAq8spo5e7cZ0dJ?si=dFHCaY2TQHKxxqF4UGNQ0g&utm_source=copy-link&dl_branch=1)
+- [I will survive](https://open.spotify.com/track/7rIovIsXE6kMn629b7kDig?si=MR9nh7fsTcGjcS0bQg5DrQ&utm_source=copy-link&dl_branch=1)
+- [Just the way you are](https://open.spotify.com/track/7BqBn9nzAq8spo5e7cZ0dJ?si=dFHCaY2TQHKxxqF4UGNQ0g&utm_source=copy-link&dl_branch=1)
 
 
 ### 🌐 Where to find me
